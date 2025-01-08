@@ -28,14 +28,10 @@
 
 💡 Fun Fact
 
-> The color dark red, often associated with passion and love, can also influence heightened emotions and energy. 
-
-> Studies have shown that red can increase heart rate and adrenaline levels, similar to how sports can elevate your physical and emotional state. 
-
-> Interestingly, the sound of rain has been linked to enhanced creativity, making it a perfect environment for artistic expression. 
-
-> Additionally, chocolate contains compounds that can boost serotonin levels, promoting feelings of happiness and love. 
-
-> So, whether you're creating art, participating in sports, or simply enjoying a rainy day, these elements can all contribute to an overall positive and uplifting mood. 
+> The color dark red, often associated with passion and love, can also influence heightened emotions and energy.
+Studies have shown that red can increase heart rate and adrenaline levels, similar to how sports can elevate your physical and emotional state. 
+Interestingly, the sound of rain has been linked to enhanced creativity, making it a perfect environment for artistic expression. 
+Additionally, chocolate contains compounds that can boost serotonin levels, promoting feelings of happiness and love. 
+So, whether you're creating art, participating in sports, or simply enjoying a rainy day, these elements can all contribute to an overall positive and uplifting mood. 
 
 🌧️🎨❤️🍫
