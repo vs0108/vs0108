@@ -4,7 +4,9 @@
   
 - I am an AI & ML engineer with a passion for innovation and a strong interest in the intersection of technology and creativity.
 
-- My current areas of focus include Automation, Art, Music, Sports, Animation, and UI/UX design.
+- My current areas of focus include automation, animation, and UI/UX design.
+  
+- I also like to incorporate AI in the fields of art and music.
  
 📚 Learning Journey
 
