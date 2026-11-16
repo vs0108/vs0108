@@ -20,10 +20,6 @@
 
 - I believe that collaboration is essential to pushing the boundaries of what is possible and creating a more positive impact on the world.
 
-📧 Contact
-
-- Feel free to reach out to me via 
-
 💁 Pronouns
 
 - She/Her
